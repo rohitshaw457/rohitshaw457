@@ -7,7 +7,7 @@
 - 📊 Data Analyst with hands-on experience in **data analysis, reporting, and visualization**  
 - 🔍 Skilled in transforming raw data into **clear insights and dashboards**  
 - 🧠 Strong foundation in **statistics, economics, and business analysis**  
-- 📫 Reach me at: **your-email@example.com**
+- 📫 Reach me at: **457s.rohit@gmail.com**
 
 ---
 
